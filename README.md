@@ -1,1 +1,1 @@
-# metose-penelitian
+# metode-penelitian
